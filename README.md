@@ -70,7 +70,7 @@ help hotels improve operational efficiency and decision-making.
 
 ## 📬 Contact
 **Anushree Kashyap**  
-📧 Email: anushreekashyap03@gmail.com  
+
 
 ---
 
